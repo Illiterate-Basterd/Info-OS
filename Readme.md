@@ -1,0 +1,1 @@
+Info OS developed in educational purposes
